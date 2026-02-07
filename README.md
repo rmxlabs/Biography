@@ -1,3 +1,1 @@
-Компания rmxlabs.ru угнана Артемом Краевым в сговоре с Евгенией Ивановой-Алексеевой в 2008 году с помощью лжи и клеветы.
-Весь мир фантазирует, как это исправить. Но очень медленно. До многих долго доходит.
-Подробнее: radiophysics.ru
+The company rmxlabs.ru was hijacked by Artem Kraev in collusion with Evgenia Ivanova‑Alekseeva in 2008 through lies and slander. The whole world is pondering how to fix this, but progress is very slow. It takes a long time for many people to realize what happened. More details: radiophysics.ru
